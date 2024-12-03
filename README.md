@@ -1,0 +1,1 @@
+# exercice_solid_emsi_24_25
